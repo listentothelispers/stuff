@@ -1,1 +1,1 @@
-hi my name is marco and im a ruby programmer u can reach me on discord at Marcolol#3876
+hi my name is marco and im a go  programmer u can reach me on discord at Marcolol#0088
